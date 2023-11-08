@@ -1,5 +1,8 @@
 Clubhouse 路边大学露天讲堂 replay
 
+2023.11.8 第八讲
+https://www.clubhouse.com/room/PvY3g7o6?utm_medium=ch_room_pxr&utm_campaign=lpYfcJN9MC3YSlNJ-t3K_A-973365
+
 2023.11.6
 https://www.clubhouse.com/room/xl7njrZw?utm_medium=ch_room_pxr&utm_campaign=lpYfcJN9MC3YSlNJ-t3K_A-970529
 
