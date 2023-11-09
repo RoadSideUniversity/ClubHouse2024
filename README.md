@@ -1,4 +1,6 @@
 Clubhouse 路边大学露天讲堂 replay
+2023.11.9 第九讲
+https://www.clubhouse.com/invite/ud0xisa9
 
 2023.11.8 第八讲
 https://www.clubhouse.com/room/PvY3g7o6?utm_medium=ch_room_pxr&utm_campaign=lpYfcJN9MC3YSlNJ-t3K_A-973365
