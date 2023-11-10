@@ -1,4 +1,8 @@
-Clubhouse 路边大学露天讲堂 replay
+Clubhouse 路边大学露天讲堂 alive only, no replay
+
+2023.11.10 SGT 9:00 am for 路邊大學露天學堂Github.com/RoadSideUniversity第十讲.
+https://www.clubhouse.com/invite/J9cKdauZ
+
 2023.11.9 第九讲
 https://www.clubhouse.com/invite/ud0xisa9
 
