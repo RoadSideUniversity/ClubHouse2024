@@ -2,7 +2,9 @@
 
 2023.11.16 第十二讲@FintechFestival现场 join ClubHouse Live 
 https://www.clubhouse.com/invite/2dguNve0VB9dLvYzYG64BKkwo97FV9E9bo:KF7Z0gSoPcQSX0QW8GoJaR-Z2uFS9Y0kUEZbNo3zd3Q
+
 第十二讲课堂笔记
+https://github.com/orgs/RoadSideUniversity/discussions/33
 
 2023.11.15 第十一讲 join ClubHouse Live 
 https://www.clubhouse.com/room/QKLiN9Xe2LTaege03:9G2R3VNmKx5VNZr_pimJ_ghsq3N6xhFMeMOa0agi1bY?utm_medium=ch_instant_invite&utm_campaign=lpYfcJN9MC3YSlNJ-t3K_A-983116
