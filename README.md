@@ -1,7 +1,9 @@
 # Clubhouse 路边大学露天讲堂 live only, no replay
 
-2023.11.17 第十三讲
+2023.11.17 第十三讲 认识年轻人 了解新世界 
 https://www.clubhouse.com/invite/sqwu7DT7
+第十三讲课堂笔记
+https://github.com/orgs/RoadSideUniversity/discussions/36
 
 2023.11.16 第十二讲@FintechFestival现场 join ClubHouse Live 
 https://www.clubhouse.com/invite/2dguNve0VB9dLvYzYG64BKkwo97FV9E9bo:KF7Z0gSoPcQSX0QW8GoJaR-Z2uFS9Y0kUEZbNo3zd3Q
