@@ -1,5 +1,8 @@
 # Clubhouse 路边大学露天讲堂 live only, no replay
 
+2023.11.17 第十三讲
+https://www.clubhouse.com/invite/sqwu7DT7
+
 2023.11.16 第十二讲@FintechFestival现场 join ClubHouse Live 
 https://www.clubhouse.com/invite/2dguNve0VB9dLvYzYG64BKkwo97FV9E9bo:KF7Z0gSoPcQSX0QW8GoJaR-Z2uFS9Y0kUEZbNo3zd3Q
 
