@@ -3,6 +3,7 @@
 2023.11.20 第十四讲 世界变化快 .
 https://www.clubhouse.com/invite/2JIPKMQt
 
+https://github.com/orgs/RoadSideUniversity/discussions/37
 
 2023.11.17 第十三讲 认识年轻人 了解新世界 
 https://www.clubhouse.com/invite/sqwu7DT7
