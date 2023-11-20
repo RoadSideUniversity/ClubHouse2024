@@ -1,5 +1,9 @@
 # Clubhouse 路边大学露天讲堂 live only, no replay
 
+2023.11.20 第十四讲 世界变化快 .
+https://www.clubhouse.com/invite/2JIPKMQt
+
+
 2023.11.17 第十三讲 认识年轻人 了解新世界 
 https://www.clubhouse.com/invite/sqwu7DT7
 
