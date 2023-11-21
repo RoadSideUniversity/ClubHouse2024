@@ -1,5 +1,9 @@
 # Clubhouse 路边大学露天讲堂 live only, no replay
 
+2023.11.21 第十五讲 随意发散
+
+https://www.clubhouse.com/room/xn7gVqoX?utm_medium=ch_room_pt&utm_campaign=lpYfcJN9MC3YSlNJ-t3K_A-991844
+
 2023.11.20 第十四讲 世界变化快 .
 https://www.clubhouse.com/invite/2JIPKMQt
 
