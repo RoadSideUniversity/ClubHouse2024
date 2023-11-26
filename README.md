@@ -1,20 +1,13 @@
 # Clubhouse 路边大学露天讲堂 live only, no replay
 
 2023.11.24 第十六讲 感恩节， 你感恩吗
-https://www.clubhouse.com/room/1dVSZ1OY2YTGkqkNn:gZdIX7d0-sq8f3nzAu70i1RBFbxMzizh9chGG-_edWI?utm_medium=ch_instant_invite&utm_campaign=lpYfcJN9MC3YSlNJ-t3K_A-996171
-
 https://github.com/orgs/RoadSideUniversity/discussions/40
 
 2023.11.21 第十五讲 随意发散
-
-https://www.clubhouse.com/room/xn7gVqoX?utm_medium=ch_room_pt&utm_campaign=lpYfcJN9MC3YSlNJ-t3K_A-991844
-
 课堂笔记
 https://github.com/orgs/RoadSideUniversity/discussions/38
 
-2023.11.20 第十四讲 世界变化快 .
-https://www.clubhouse.com/invite/2JIPKMQt
-
+2023.11.20 第十四讲 世界变化快 
 https://github.com/orgs/RoadSideUniversity/discussions/37
 
 2023.11.17 第十三讲 认识年轻人 了解新世界 
