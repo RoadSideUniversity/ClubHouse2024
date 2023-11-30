@@ -1,4 +1,5 @@
 # Clubhouse 路边大学露天讲堂 live only, no replay
+2023.11.24 第十八
 
 2023.11.24 第十六讲 感恩节， 你感恩吗
 https://github.com/orgs/RoadSideUniversity/discussions/40
