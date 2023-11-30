@@ -1,5 +1,7 @@
 # Clubhouse 路边大学露天讲堂 live only, no replay
-2023.11.24 第十八
+2023.11.30 第十八讲 回归常态
+https://www.clubhouse.com/room/kgpcl5VK1ZTRBgB6Z:3zSNjws_AMKO7yDcrjhZWhiHct2SGjlt1TutEQq_JVQ?utm_medium=ch_instant_invite&utm_campaign=lpYfcJN9MC3YSlNJ-t3K_A-1004672
+https://github.com/orgs/RoadSideUniversity/discussions/41
 
 2023.11.24 第十六讲 感恩节， 你感恩吗
 https://github.com/orgs/RoadSideUniversity/discussions/40
