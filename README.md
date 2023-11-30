@@ -1,34 +1,23 @@
 # Clubhouse 路边大学露天讲堂 live only, no replay
 2023.11.30 第十八讲 回归常态
-https://www.clubhouse.com/room/kgpcl5VK1ZTRBgB6Z:3zSNjws_AMKO7yDcrjhZWhiHct2SGjlt1TutEQq_JVQ?utm_medium=ch_instant_invite&utm_campaign=lpYfcJN9MC3YSlNJ-t3K_A-1004672
 https://github.com/orgs/RoadSideUniversity/discussions/41
 
 2023.11.24 第十六讲 感恩节， 你感恩吗
 https://github.com/orgs/RoadSideUniversity/discussions/40
 
 2023.11.21 第十五讲 随意发散
-课堂笔记
 https://github.com/orgs/RoadSideUniversity/discussions/38
 
 2023.11.20 第十四讲 世界变化快 
 https://github.com/orgs/RoadSideUniversity/discussions/37
 
 2023.11.17 第十三讲 认识年轻人 了解新世界 
-https://www.clubhouse.com/invite/sqwu7DT7
-
-第十三讲课堂笔记
 https://github.com/orgs/RoadSideUniversity/discussions/36
 
-2023.11.16 第十二讲@FintechFestival现场 join ClubHouse Live 
-https://www.clubhouse.com/invite/2dguNve0VB9dLvYzYG64BKkwo97FV9E9bo:KF7Z0gSoPcQSX0QW8GoJaR-Z2uFS9Y0kUEZbNo3zd3Q
-
-第十二讲课堂笔记
+2023.11.16 第十二讲@FintechFestival现场, 课堂笔记
 https://github.com/orgs/RoadSideUniversity/discussions/33
 
-2023.11.15 第十一讲 join ClubHouse Live 
-https://www.clubhouse.com/room/QKLiN9Xe2LTaege03:9G2R3VNmKx5VNZr_pimJ_ghsq3N6xhFMeMOa0agi1bY?utm_medium=ch_instant_invite&utm_campaign=lpYfcJN9MC3YSlNJ-t3K_A-983116
-
-第十一讲课堂笔记 
+2023.11.15 第十一讲 课堂笔记 
 https://github.com/orgs/RoadSideUniversity/discussions/30
 
 2023.11.10 路边社 economic topic discussion
