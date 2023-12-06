@@ -1,9 +1,14 @@
-# Clubhouse 路边大学露天讲堂 live only, no replay
+# Clubhouse 露天讲堂 live only, no replay
+https://github.com/orgs/RoadSideUniversity/discussions
+
+2023.12.5-6 第20-21讲 预测四万五 关于卷的问题
+https://github.com/orgs/RoadSideUniversity/discussions/46
+
+关于AI和未来
+https://github.com/orgs/RoadSideUniversity/discussions/19
+
 2023.11.30 第十八讲 回归常态
 https://github.com/orgs/RoadSideUniversity/discussions/41
-
-2023.11.24 第十六讲 感恩节， 你感恩吗
-https://github.com/orgs/RoadSideUniversity/discussions/40
 
 2023.11.21 第十五讲 随意发散
 https://github.com/orgs/RoadSideUniversity/discussions/38
