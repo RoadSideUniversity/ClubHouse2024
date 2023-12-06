@@ -1,4 +1,7 @@
 # Clubhouse 露天讲堂 live only, no replay
+https://www.clubhouse.com/c/join/HPN9ZbOS
+
+课堂笔记 
 https://github.com/orgs/RoadSideUniversity/discussions
 
 2023.12.5-6 第20-21讲 预测四万五 关于卷的问题
@@ -22,16 +25,8 @@ https://github.com/orgs/RoadSideUniversity/discussions/36
 2023.11.16 第十二讲@FintechFestival现场, 课堂笔记
 https://github.com/orgs/RoadSideUniversity/discussions/33
 
-2023.11.15 第十一讲 课堂笔记 
-https://github.com/orgs/RoadSideUniversity/discussions/30
-
 2023.11.10 路边社 economic topic discussion
 https://www.clubhouse.com/house/%E8%B7%AF%E9%82%8A%E7%A4%BE-economic-topics-discussion
 
 重构的时代来临 - 课堂笔记 #25
 https://github.com/orgs/RoadSideUniversity/discussions/25
-
-
-Clubhouse 路边大学露天讲堂
-https://www.clubhouse.com/c/join/HPN9ZbOS
-
