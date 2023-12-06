@@ -30,3 +30,6 @@ https://www.clubhouse.com/house/%E8%B7%AF%E9%82%8A%E7%A4%BE-economic-topics-disc
 
 重构的时代来临 - 课堂笔记 #25
 https://github.com/orgs/RoadSideUniversity/discussions/25
+
+关于青中年未来人生规划的分享和建议
+https://github.com/RoadSideUniversity/ClubHouse2023/issues/21
