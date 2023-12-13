@@ -1,4 +1,7 @@
 # Clubhouse 露天讲堂 live only, no replay
+
+通知：my travel plan FYI 12-15 Dec Thailand followed 17-30 Dec Europe, not easy for me host clubhouse from my side, I suggest all admin feel free to creating CH event and talk during season, Merry Xmas and Happy NewYear!
+
 https://www.clubhouse.com/c/join/HPN9ZbOS
 
 课堂笔记 
