@@ -1,11 +1,16 @@
 # Clubhouse 露天讲堂 live only, no replay
-
-通知：my travel plan FYI 12-15 Dec Thailand followed 17-30 Dec Europe, not easy for me host clubhouse from my side, I suggest all admin feel free to creating CH event and talk during season, Merry Xmas and Happy NewYear!
-
 https://www.clubhouse.com/c/join/HPN9ZbOS
-
 课堂笔记 
 https://github.com/orgs/RoadSideUniversity/discussions
+
+2024新年快乐 Jan 3.2024 #49
+https://github.com/orgs/RoadSideUniversity/discussions/49
+
+告别2023的最后感想
+https://github.com/orgs/RoadSideUniversity/discussions/48
+
+路边社對2024年的展望：討論明年會發生什麼重大經濟和社會事件 #47
+https://github.com/orgs/RoadSideUniversity/discussions/47
 
 2023.12.5-6 第20-21讲 预测四万五 关于卷的问题
 https://github.com/orgs/RoadSideUniversity/discussions/46
