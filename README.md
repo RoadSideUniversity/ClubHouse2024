@@ -4,6 +4,7 @@ member feel free to initiate CH event casually
 https://www.clubhouse.com/c/join/HPN9ZbOS
 课堂笔记摘要 
 https://github.com/orgs/RoadSideUniversity/discussions
+热烈祝贺路边大学网页第一稿2024.1.11上线 https://roadsideuniversity.github.io/RSU/
 
 2024新年快乐 Jan 3.2024 #49
 https://github.com/orgs/RoadSideUniversity/discussions/49
